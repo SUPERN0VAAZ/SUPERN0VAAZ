@@ -3,4 +3,4 @@
 <p>
 <p><i>` ꒰ა 📞 NOW'S YOUR CHANCE TO BE A BIG SHOT ! ✉ ໒꒱ `<i><p>
 <p>
-<p><b> C + H FRIENDLY !! PLEASE ASK FIRST THOUGH .<b><p>
+<p><b> FRIENDS CAN C + H FREELY !! PLEASE ASK IF IM WITH A FRIEND OR IF U WANT TO  .<b><p>
